@@ -1,0 +1,2 @@
+# zebra-perde
+Zebra Perde Sistemleri diğer perde sistemlerine göre daha fazla enerji tasarrufu sağlar. Sistem olarak iki kat perdeden oluşan zebra perde sistemleri ismini tıpkı “zebra” desenine benzemesinden alır. Üretiminde kullanılan kumaş mekanlarınızdaki gün ışığı oranını tam olarak kontrol edebilmenizi sağlar. Aynı stor perdede olduğu gibi zebra perde sistemlerinde de kontrol, perdenin yanında bulunan mekanizma ile sağlanır. Bu mekanizma dilerseniz manuel dilerseniz motorlu şekilde üretilerek kullanıma sunulur.  http://www.pergoperde.com.tr/#!zebra-perde/
